@@ -1,1 +1,1 @@
-# Del-clinic-Lead-Magnet-
+# Deal-clinic-Lead-Magnet
